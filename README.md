@@ -1,1 +1,2 @@
-# hello-
+Hello.....!!!
+      My Name is Rupali Raut, currently i am pursuing computer Technology final year in Yeshwantrao Chavan College of Engineering,Nagpur. Before this i'm alredy done with my Diploma from Goverment Polytechnic,Nagpur in computer Engineering. i completed my graduation successfully by year 2022,as job perspective i want to work as a web developer, front end developer and require skills for that i have....i am a girl who is adventures with full of confidence,passion,and love to explore the new things. 
